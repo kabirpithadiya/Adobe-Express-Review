@@ -51,4 +51,4 @@ Adobe Express is an excellent solution for creating content for social media, ma
 > Graphics: Metal support
 > Internet Connection: Required for downloading and updates
 
-# Download Adobe Express Review by lik below:
+# Download Adobe Express Review by link below:
